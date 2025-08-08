@@ -1,1 +1,0 @@
-# Ccc-yfttk15.filtering.rubika
